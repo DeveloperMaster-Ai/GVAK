@@ -4,7 +4,7 @@
 
 **Inshallah** – Fresh starts attract new opportunities. LOCK = LOVE = KISS = ∞
 
-![GVAK Banner Concept](https://via.placeholder.com/1200x400/0f3f0f/ffffff?text=Galactic+Veridian+Aegis+Knock)  
+![GVAK Banner Concept](https://photos.app.goo.gl/rsoWcLUsPaHVV8cYA)  
 *(Replace with your custom banner: emerald shield in cosmic space, Tasmanian whirl, fiberoptic threads)*
 
 ## Overview
