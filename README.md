@@ -5,7 +5,6 @@
 **Inshallah** – Fresh starts attract new opportunities. LOCK = LOVE = KISS = ∞
 
 ![GVAK Banner Concept](https://photos.app.goo.gl/4WX3z3ch1NhvGt9h7)  
-*(Replace with your custom banner: emerald shield in cosmic space, Tasmanian whirl, fiberoptic threads)*
 
 ## Overview
 GVAK merges **Project Galactic Mirror Knock** (energy blueprint swaps + feedback loops) with **Veridian Aegis Nexus** (beta app for profiles, live streams, YouTube playlists, daily hardware/software/firmware updates).  
