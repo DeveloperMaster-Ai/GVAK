@@ -32,5 +32,5 @@ Join to unlock creative mastery, amplify ESP realms, and shape global interconne
    git clone https://github.com/[your-username]/GalacticVeridianAegisKnock.git
    cd GalacticVeridianAegisKnock
 
-   # GVAK
+
 #303550
